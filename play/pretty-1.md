@@ -1,5 +1,5 @@
-I feel handsome
+I feel charming
 Oh so charming
 It's alarming how charming I feel
-++++++
-That I hardly can believe I'm real 
+And so cool
+That I hardly can believe I'm real
